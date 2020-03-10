@@ -17,4 +17,4 @@ Here's a link to my research
 https://local12.com/sponsored/undergraduate-summer-scholarship-sparks-year-long-research-project
 Here's a picture of me doing research
 =====================================
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fmiamioh.edu%2Fnews%2Fcampus-news%2F2020%2F01%2Falyssa-bley.html&psig=AOvVaw0gQN64pwPw0WX00ZguoL3i&ust=1583955691568000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCNDb5_fUkOgCFQAAAAAdAAAAABAD
+![new mexico research](https://miamioh.edu/_files/images/news/2020/01/alyssa-bley-new-mexico.jpg)
